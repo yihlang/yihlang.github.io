@@ -8,7 +8,7 @@
 
 💬 Ask me about anything from quantum physics to why pineapples do belong on pizza.
 
-📫 How to reach me: Drop me a line at my_email@example.com or send me a message on LinkedIn. I’m always up for a chat!
+📫 How to reach me: Drop me a line at yihlang@hotmail.com or send me a message on LinkedIn. I’m always up for a chat!
 
 😄 Pronouns: He/Him
 
