@@ -10,6 +10,6 @@
 
 📫 How to reach me: Drop me a line at yihlang@hotmail.com or send me a message on LinkedIn. I’m always up for a chat!
 
-😄 Pronouns: He/Him
+😄 Pronouns: He/Him.
 
 ⚡ Fun fact: I once participated in a hot air balloon race and managed to land in a field of sunflowers.
